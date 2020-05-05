@@ -1,0 +1,2 @@
+# Next
+We told you Project Erazer will be named in previous repositories. Indeed a hoddle but a success today, kudos to our devoted supporters and to all who helped to defined Project Erazer. Next... is an impact, showing the world true connection (Real-Estate, Blockchain Tech, Payment System, Crypto and what mass adoption truly looks like). Light to early adopters (code power X 10 Loaing from TS... BR = 50X)
